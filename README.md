@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Fadeneor
+- 👀 I’m interested in internet
+- 🌱 I’m currently learning in College
+- 💞️ I’m looking to collaborate on ...
+- 📫 I live in Greenland, Nuuk city
+- Write to me if you want to make friends
